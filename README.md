@@ -1,4 +1,4 @@
-# The different types of coffee beans
+# The different types of coffee beans☕️ 
 ## Introduction
 #### **When we brew coffee, the quality of the coffee beans directly determines the taste of the coffee. For some new coffee drinkers then, it is important to know the different varieties of [coffee beans](https://en.wikipedia.org/wiki/Coffee_bean). Today I will introduce the top nine coffee bean varieties in the world.**
 ## The world's top three original coffee bean varieties
