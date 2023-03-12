@@ -11,7 +11,7 @@
 3. Liberica
 :*A bean variety that has "disappeared" because it is less aromatic than Arabica and less bitter than Robusta, and is gradually being phased out.*
 
-## The Arabica family
+### The Arabica family
 
 Arabica has developed most rapidly and expansively. After natural mutations, natural crosses and man-made hybrids, Arabica varieties of beans have blossomed all over the world and occupy half of the coffee world.
 
